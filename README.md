@@ -8,7 +8,6 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on Embodied AI
 - 🌱 I’m currently learning Generative AI and Robotics
 - 👯 I’m looking to collaborate on Embodied AI and fabric stuff business 👻
-- 🤔 I’m looking for help with Embodied AI position
 - 📫 How to reach me: shenyixin1218@outlook.com
 - 😄 Pronouns: Call Me Eason or Yixin
 - ⚡ Fun fact: Manga and Animation!
