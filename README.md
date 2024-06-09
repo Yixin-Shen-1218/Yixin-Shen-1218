@@ -2,7 +2,8 @@
 
 - 🔭 I’m currently working on Embodied AI
 - 🌱 I’m currently learning Generative AI and Robotics
-- 👯 I’m looking to collaborate on Embodied AI and fabric stuff business 👻
+- 👯 I’m looking to collaborate on Embodied AI
+- 👻 I’m looking to collaborate on Cross-Border E-Commerce for Fabrics, we are the source factories (Haining, Zhejiang).
 - 📫 How to reach me: shenyixin1218@outlook.com
 - 😄 Pronouns: Call Me Eason or Yixin (yì xīn)
 - ⚡ Fun fact: I prefer to sleep more than 10 hours per day
