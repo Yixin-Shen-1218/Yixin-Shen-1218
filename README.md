@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on Embodied AI and Cross-Border E-Commerce Start-Up
 - 🌱 I’m currently learning Generative AI and Robotics
 - 👯 I’m looking to collaborate on Embodied AI
-- 👻 I’m looking to collaborate on Cross-Border E-Commerce for Fabrics, we are the source factories (Zhejiang, Jiangsu) and provide high-quality products
+- 👻 I’m looking to collaborate on Cross-Border E-Commerce for Fabrics, we are the source factories and provide high-quality products
 - 📫 How to reach me: shenyixin1218@outlook.com
 - 😄 Pronouns: Call Me Eason or Yixin (yì xīn)
 
