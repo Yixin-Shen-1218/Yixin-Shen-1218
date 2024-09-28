@@ -7,7 +7,7 @@
 - 📫 How to reach me: shenyixin1218@outlook.com
 - 😄 Pronouns: Call Me Eason or Yixin (yì xīn)
 
-~My current research focuses on digital twins for manufacturing, especially on chemical fiber industry~
+\~My current research focuses on digital twins for manufacturing, especially on chemical fiber industry\~
 
 Personal Website: https://yixin-shen-1218.github.io/
 
